@@ -12,6 +12,6 @@
 - 📫 How to reach me: 
       LinkedIn: https://www.linkedin.com/in/vishakabasnayake
       Gmail: vishakabasnayake@gmail.com.
-- ⚡ Fun fact: I like to engage in community services.
+- ⚡ Fact: I like to engage in community services.
 
 
